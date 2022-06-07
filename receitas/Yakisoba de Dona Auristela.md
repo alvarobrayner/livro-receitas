@@ -8,7 +8,7 @@
 
 - 1 cebola grande picada em pedaços médios
 
-- 1 colher (sopa) de óleo
+- 1 colher (sopa) de óleo de gergelim torrado
 
 - 1/2 maço pequeno de brócolis
 
@@ -31,7 +31,7 @@
   ## MODO DE PREPARO
 
 1. Cozinhe o macarrão em água salgada e reserve.
-2. Em uma panela grande, coloque o óleo e refogue a cebola.
-3. Acrescente a carne, o brócolis, a couve-flor, a cenoura, a acelga, o champignon e tempere com shoyu.
+2. Em uma panela grande, coloque óleo e refogue a cebola.
+3. Acrescente a carne, o brócolis, a couve-flor, a cenoura, a acelga, o champignon e tempere com shoyu e óleo de gergelim torrado.
 4. Despeje o molho para Yakisoba e deixe cozinhar até os legumes ficarem cozidos em ponto al dente.
 5. Adicione o macarrão, misture bem e sirva logo a seguir.
